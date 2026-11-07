@@ -15,7 +15,7 @@
 
 ### About me
 
-- 🎓 Master in Business Administration @ **Chicago Booth** (STEM)
+- 🎓 Master in Business Administration @ **Chicago Booth**
 - 🚀 Background in marketing, sales, and go-to-market
 - 🌍 English · Italian · Spanish
 
