@@ -30,7 +30,7 @@
 
 ### Interested in
 
-Tech · Marketing · AI products · 
+Tech · Marketing · AI products
 
 ---
 
