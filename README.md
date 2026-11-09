@@ -35,3 +35,4 @@ Tech · Marketing · AI products
 ---
 
 <p align="center"><i>Open to conversations about strategy, marketing, and AI - hmu!</i></p>
+
